@@ -1,6 +1,6 @@
 ### Hi there 👋
-# I'm currently work in sithec.com.mx 
+# I'm currently be an intern in sithec.com.mx 
 
-# and i'm studying in Uaa.mx
+# and i'm studying eighth semester in UAA.mx
 
 https://ulisesbasher.000webhostapp.com/
